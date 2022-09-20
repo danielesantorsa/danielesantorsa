@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @danielesantorsa
-- 👀 I’m interested in moneey
+- 👀 I’m interested in money
 - 🌱 I’m currently learning how to became rich
 - 💞️ I’m looking to collaborate on myself
 - 📫 How to reach me ... just don't
