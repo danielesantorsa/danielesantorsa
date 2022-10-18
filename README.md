@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning how to became rich
 - 💞️ I’m looking to collaborate with myself
 - 📫 How to reach me ... just don't
+- ✨ slay
 
 <!---
 danielesantorsa/danielesantorsa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
