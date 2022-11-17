@@ -2,7 +2,7 @@
 - 👀 I’m interested in money
 - 🌱 I’m currently learning how to became rich
 - 💞️ I’m looking to collaborate with myself
-- 📫 How to reach me ... just don't, i have things to do
+- 📫 How to reach me ... just don't, I have things to do
 - ✨ slay
 
 <!---
